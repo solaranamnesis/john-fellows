@@ -10,6 +10,12 @@
 
 ### Printed for the Author, and sold by Gould, Banks and Co.
 
+---
+
+# [Explanation of the Frontispiece.]()
+
+---
+
 # Explanation of the Frontispiece.
 
 ...
